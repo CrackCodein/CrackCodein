@@ -2,7 +2,7 @@
 - 👀 I’m interested in web development
 - 🌱 I’m currently learning HTML,CSS,JS
 - 💞️ I’m looking to collaborate on web development projects
-- 📫 How to reach me 
+- 📫 How to reach me ;smoke signals and beating drums I'll definitely respond
 - 😄 Pronouns: THE/BEST
 - ⚡ Fun fact: FLAT EARTHER
 
